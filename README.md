@@ -48,3 +48,11 @@ Join our community of developers creating universal apps.
 
 - [Expo on GitHub](https://github.com/expo/expo): View our open source platform and contribute.
 - [Discord community](https://chat.expo.dev): Chat with Expo users and ask questions.
+- <img width="298" height="541" alt="Ekran görüntüsü 2025-11-07 215252" src="https://github.com/user-attachments/assets/408aacaf-8a99-40b2-9433-8d9e826c8e82" />
+![1](https://github.com/user-attachments/assets/357c41f6-f286-4954-aa8f-e3875f2f5e32)
+
+![2](https://github.com/user-attachments/assets/7010904a-6a21-456b-9816-6ebc2cbb9304)
+
+![3](https://github.com/user-attachments/assets/7427555e-6b6b-4b88-aa9f-d06339f066e2)
+<img width="1919" height="1079" alt="3" src="https://github.com/user-attachments/assets/834e1924-451c-4ec9-92bf-d80b86893511" />
+
